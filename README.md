@@ -1,5 +1,5 @@
-M.Alviandra Risyad 
-Mahasiswa Universitas Jambi
+Alviandra
+Mahasiswa
 Fakultas Sains Dan Teknologi
 Sistem Informasi 
 Suka Berangan-angan //imagination
