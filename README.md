@@ -1,6 +1,6 @@
 Alviandra
 Mahasiswa
-Fakultas Sains Dan Teknologi
+FST
 Sistem Informasi 
 Suka Berangan-angan //imagination
 <!---
